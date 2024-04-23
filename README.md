@@ -1,0 +1,7 @@
+- 👋 Olá, sou @ liv-fer98
+- 👀 Estou interessado em tudo que envolve tecnologia
+- 🌱 Atualmente estou aprendendo engenharia de dados
+- 💞️ Procuro colaborar em projetos sociais voltados para tecnologia
+- 📫 Como entrar em contato comigo pelo Instagram: @eunanda_98
+- 😄 Pronomes: Ela
+- ⚡ Curiosidade: Sou bastante tímida, mas quanto mais envergonhada fico mais eu falo!!!
